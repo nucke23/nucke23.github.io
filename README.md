@@ -1,5 +1,7 @@
 # Sample website
 
-this website conrtains 
-#PORN
+this website contains 
+
+# PORN
+
 so proceed with caution
